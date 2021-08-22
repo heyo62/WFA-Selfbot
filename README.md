@@ -1,2 +1,2 @@
 # WFA-Selfbot
-Join : https://discord.gg/center
+Created by Koara X KSCH - Join .gg/center
